@@ -4,6 +4,6 @@ on discord so i made a account-
 =======================================================================================================================
 Name: ???
 Nickname(s): death, kai, myst and dorito.
-Age: no.
+Age: YOU CAN READ
 Gender: undefined.
 Pronouns: they/them/demon
